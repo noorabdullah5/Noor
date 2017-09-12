@@ -1,8 +1,9 @@
 #Introducing Noor Abdullah
-##Name-**Noor Abdullah
+##Name-      
+*Noor Abdullah
 ##Hometown-**bridlewood
 ##Middle School Attended-**Glen Cairn
-##Parent/Guardian(s) Name(s), Family-**MOM:Gabriela Hergyndez Saucedo DAD:bashar Abdullah STEP DAD:Robert Williams SISTER:Giselle Abdullah
+##Parent/Guardian(s) Name(s), Family-**MOM:Gabriela Hernandez Saucedo DAD:bashar Abdullah STEP DAD:Robert Williams SISTER:Giselle Abdullah
 ##**Interests/hobbies**Makeup
 ##faviourite song-**
 **Favourite Movie, Actor, Actress-**
