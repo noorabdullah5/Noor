@@ -4,7 +4,7 @@
 My name is Noor Abdullah
 ## **Where I live**
 My hometown is bridlewood, I have lived here for 14 years and I live in two houses 
-## ** Schools Attended**
+## **Schools Attended**
 For elemtary school I went to Roch Carrier E.S and for middle school I went to Glen Cairn P.S
 ## **Parent/Guardian(s) Name(s), Family**      
 My moms name is Gabriela (she goes by Gaby) Hernandez Saucedo, my dads name is Bashar Abdullah my step dad is Robert williams and my little sister is Giselle Abdullah. My parents were married for 15 years but around when I was I think 8 or 9 they seperated and my mom moved out, my mom found a guy named Rob and they have been together for about two and a half years. I live with both of my parents and go back and forth every second week. Even though my parents are divorced they are still friends and they stay in contact.
